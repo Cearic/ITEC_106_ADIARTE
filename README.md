@@ -1,1 +1,0 @@
-# ITEC_106_ADIARTE
